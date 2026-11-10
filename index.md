@@ -3,6 +3,7 @@ title: Política de Privacidade do Pass50+
 lang: pt-BR
 ---
 
+# Política de Privacidade do Pass50+
 
 Última atualização: 9 de novembro de 2026
 
